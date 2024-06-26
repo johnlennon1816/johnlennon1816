@@ -14,4 +14,4 @@ neresjohnleno@gmail.com
 
 @johnlennon
 
-![](https://media1.tenor.com/m/iUaVjxQcq40AAAAC/yuji-itadori-suku.gif)
+https://media1.tenor.com/m/3v_8WlW7JWUAAAAC/kk.gif
