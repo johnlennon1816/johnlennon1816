@@ -14,4 +14,4 @@ neresjohnleno@gmail.com
 
 @johnlennon
 
-https://media1.tenor.com/m/CCTYyxh2OXoAAAAC/s.gif
+https://c.tenor.com/CCTYyxh2OXoAAAAC/tenor.gif
